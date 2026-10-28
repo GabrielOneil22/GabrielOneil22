@@ -1,4 +1,4 @@
-👋 Olá, eu sou Gabriel Oneil!
+eu sou Gabriel Oneil
 
 Estudante de Tecnologia da Informação
 
